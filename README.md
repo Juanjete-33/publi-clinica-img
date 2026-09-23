@@ -1,0 +1,1 @@
+# publi-clinica-img
